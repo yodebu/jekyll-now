@@ -3,15 +3,19 @@ layout: page
 title: About
 permalink: /about/
 ---
-HI! This is Debapriya, a B Tech 3rd Year Undergrad Student of CSE Dept from NIT DURGAPUR. I love to code and open source!
+HI! This is Debapriya, a B Tech Final Year Undergrad Student of CSE Dept from NIT DURGAPUR. I love to Design and Develop. I also love to contribute to open source!<br>
+*This is My Blog, where I jot down my feelings, My frustrations, My pains, My joys, My Everything!!!*
 
 
-### More Information
+### FavQoute
 
-> A programmer is a person to turns caffeine to code!
+> *A programmer is a person who passionately turns caffeine to code!*
 
-### Contact me
+### Contact Details
 
-[yodebu@gmail.com](mailto:yodebu@gmail.com)
-[debapriya.nitd@gmail.com](mailto:debapriya.nitd@gmail.com)
-[+91-8906506479](callto:+91-8906506479)
+[yodebu@gmail.com](mailto:yodebu@gmail.com)<br>
+[debapriya.nitd@gmail.com](mailto:debapriya.nitd@gmail.com)<br>
+[+91-8906506479](callto:+91-8906506479)<br>
+[+91-8553450562](callto:+91-8553450562)<br>
+[MyBlog](https://yodebu-blog.github.io)<br>
+[MyWeB](https://yodebu.github.io)<br>
