@@ -56,7 +56,7 @@ So, I lie to myself that you love me. And I am getting better at it with every p
 
 <br><br><br><br>
 
-**AFTER YOU LOSE IT ..... **
+**AFTER YOU LOSE HER**
 
 
 You have it and then you lose it.<br>
@@ -68,24 +68,29 @@ Just a mere cog that is irreplaceable.<br><br>
 
 
 <br><br><br><br>
+**I MISS YOU, PLEASE COME BACK**
 
-In retrospect, I had an epiphany. Nothing surprising, really. I just realised what a damn fool I was.
-Ever since I remember, I was chasing after you. I might have wandered off here and there at times but I was always right behind you. Eventually, I even manage to catch up to you.
-And what did I do when I had you all to myself?
-I locked you in a prison of sorts, didn't I?
-But that was never my intention, my love. For what you saw as a prison, was indeed a shrine that I built. The walls I raised around you were not to take away your freedom, simply to deny anyone else the opportunity to revere you. It was greed or maybe fear that made me raise those walls so high. In my frenzy,I transgressed. I never realised when my devotion turned to suffocation for you.
-Now you are out. On the way out you knocked down a couple of walls, but the shrine still exists held together by memories. The goddess may not reside there any longer but this devotee would spend his life inside there. Waiting, even in vain for a chance to revere you again.
-But,I will not follow you anymore.
-Now you can make your own way and I do hope you enjoy the freedom you craved so bad.
-The transgression was not my foolishness, for it was bound to happen when mortal falls for a celestial being. The foolish thing was to assume that the celestial being could ever love a mortal.
+
+In retrospect, I had an epiphany. Nothing surprising, really. I just realised what a damn fool I was.<BR>
+Ever since I remember, I was chasing after you. I might have wandered off here and there at times but I was always right behind you. Eventually, I even manage to catch up to you.<br>
+And what did I do when I had you all to myself?<br>
+*I locked you in a prison of sorts, didn't I?*<br>
+But that was never my intention, my love. <br>
+For what you saw as a prison, was indeed a shrine that I built. The walls I raised around you were not to take away your freedom, simply to deny anyone else the opportunity to revere you. It was greed or maybe fear that made me raise those walls so high. In my frenzy,I transgressed. I never realised when my devotion turned to suffocation for you.<br>
+Now you are out. On the way out you knocked down a couple of walls, but the shrine still exists held together by memories. The goddess may not reside there any longer but this devotee would spend his life inside there. Waiting, even in vain for a chance to revere you again.<br>
+But,I will not follow you anymore.<br>
+*Now you can make your own way and I do hope you enjoy the freedom you craved so bad.*<br>
+**The transgression was not my foolishness, for it was bound to happen when mortal falls for a celestial being. The foolish thing was to assume that the celestial being could ever love a mortal.**<br><br>
 
 <br><br><br><br>
 
 ##
 **follow for my works in open-source [my Github](www.github.com/yodebu)**
 
-> We loved with a love that was more than love
+<br><br>
 
+>> *Princess, I miss you, please come back!!
+*
 
 
 
