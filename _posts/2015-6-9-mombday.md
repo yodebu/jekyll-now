@@ -22,12 +22,12 @@ He is just another DEAD MAN walking... <br> <br>
 
 **HOW I CHASED YOU **
 
-Like a dog chasing a car
-I chase you from afar
-Knowing I can never catch up
-And even if I do, so what?
-What can a dog possibly do with a car?
-Poor bastard can just look at it from afar.
+Like a dog chasing a car<br>
+I chase you from afar<br>
+Knowing I can never catch up<br>
+And even if I do, so what?<br>
+What can a dog possibly do with a car?<br>
+Poor bastard can just look at it from afar.<br><br>
 
 <br><br><br><br>
 
