@@ -92,7 +92,8 @@ But,I will not follow you anymore.<br>
 <br><br><br><br>
 
 ##
-**follow for my works in open-source [my Github](www.github.com/yodebu)**
+**follow for my Project Works made Open Source on - [Github](https://www.github.com/yodebu)**
+
 
 <br><br>
 
@@ -100,4 +101,5 @@ But,I will not follow you anymore.<br>
 *
 
 
-
+<br><br>
+&copy; DEBAPRIYA DAS - 2015
