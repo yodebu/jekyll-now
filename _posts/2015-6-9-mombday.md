@@ -6,21 +6,23 @@ published: true
 
 > **So it is 9th of June, My mumma's Birthday...Happy Birthday to mummy :-)**
 
- I was sitting alone in the Office, her memories were coming along...so started writing... Summed up many things in a single post!
+ *I was sitting alone in the Office, her memories were coming along...so started writing... Summed up many things in a single post!*
 <br> 
 
 <br><br><br><br>
 
-**STORY OF A BEATING HEART**
+>**STORY OF A BEATING HEART**
 
 Is a Beating Heart, the only requisite for considering a man alive? <br>
 Even a broken heart beats,
 but the man isn't alive any more. <br>
 He is just another DEAD MAN walking... <br> <br>
 
+
 <br><br><br><br>
 
-**HOW I CHASED YOU**
+
+>**HOW I CHASED YOU**
 
 Like a dog chasing a car,<br>
 I chase you from afar,<br>
@@ -31,10 +33,13 @@ Poor bastard can just look at it from afar.... :( <br><br>
 
 <br><br><br><br>
 
+
 **TRUE REASON OF MY HAPPINESS**
 
-My happiness used to depend on you and the things you did.
-An empty mind is the devil's workshop and Lord knows the devil did tempt me whenever I was alone, corrupting my thoughts with tales of your infidelity. I couldn't confront you anymore like the old days, so I believed that bastard. But a life without hope is worse than one filled with despair. And I read somewhere that one shouldn't depend on another for happiness.
+
+My happiness used to depend on you and the things you did. <br>
+An empty mind is the devil's workshop and Lord knows the devil did tempt me whenever I was alone, corrupting my thoughts with tales of your infidelity. <br>
+I couldn't confront you anymore like the old days, so I believed that bastard. But a life without hope is worse than one filled with despair. And I read somewhere that one shouldn't depend on another for happiness.
 I don't. Not anymore. You still make me happy whenever you wish to. So do other things, but whenever your face comes to haunt me my happiness, whatever little I have, fades away and I end up on melancholy hill pondering about the things you said and the things you did.
 Has nothing changed then?
 Well,not quite. I don't depend on you for my happiness anymore. However the fact rests that nothing else quite does it for me. I desire you but your love is a necessity for me. So, I lie to myself that you love me. And I am getting better at it with every passing day.
