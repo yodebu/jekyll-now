@@ -3,11 +3,15 @@ layout: page
 title: About
 permalink: /about/
 ---
+
+
+![That is Me!](/images/me.jpg "Debapriya Das")<br><br>
+
 HI! This is Debapriya, a B Tech Final Year Undergrad Student of CSE Dept from NIT DURGAPUR. I love to Design and Develop. I also love to contribute to open source!<br>
 *This is My Blog, where I jot down my feelings, My frustrations, My pains, My joys, My Everything!!!*
 
 
-### FavQoute
+### Favorite Quote
 
 > *A programmer is a person who passionately turns caffeine to code!*
 
@@ -25,4 +29,4 @@ HI! This is Debapriya, a B Tech Final Year Undergrad Student of CSE Dept from NI
 
 <br><br>
 
-&copy;DEBAPRIYA DAS - 2015
+&copy; DEBAPRIYA DAS - 2015
