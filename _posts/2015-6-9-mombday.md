@@ -51,14 +51,20 @@ I don't depend on you for my happiness anymore. <br>
 However the fact rests that nothing else quite does it for me. <br>
 I desire you but your love is a necessity for me. <br>
 So, I lie to myself that you love me. And I am getting better at it with every passing day.<br>
-*So you see my love, my happiness doesn't depend on you anymore, it simply rests on my ability to lie to myself.*
+*So you see my love, my happiness doesn't depend on you anymore, it simply rests on my ability to lie to myself.*<br><br>
 
 
 <br><br><br><br>
 
-You have it and then you lose it.
-After you have lost it all you can do is ponder over the time when you had it and if you are optimistic even hope you have it again. But you won't. Time brings you things and time takes them away.
-You are helpless. Just a mere cog that is irreplaceable.
+**AFTER YOU LOSE IT ..... **
+
+
+You have it and then you lose it.<br>
+After you have lost it all you can do is ponder over the time when you had it and if you are optimistic even hope you have it again.<br> 
+But you won't. <br>
+*Time brings you things and time takes them away.*<br>
+You are helpless. <br>
+Just a mere cog that is irreplaceable.<br><br>
 
 
 <br><br><br><br>
