@@ -20,14 +20,14 @@ He is just another DEAD MAN walking... <br> <br>
 
 <br><br><br><br>
 
-**HOW I CHASED YOU **
+**HOW I CHASED YOU**
 
-Like a dog chasing a car<br>
-I chase you from afar<br>
-Knowing I can never catch up<br>
+Like a dog chasing a car,<br>
+I chase you from afar,<br>
+Knowing I can never catch up,<br>
 And even if I do, so what?<br>
 What can a dog possibly do with a car?<br>
-Poor bastard can just look at it from afar.<br><br>
+Poor bastard can just look at it from afar.... :( <br><br>
 
 <br><br><br><br>
 
