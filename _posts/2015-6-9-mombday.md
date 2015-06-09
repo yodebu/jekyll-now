@@ -5,9 +5,6 @@ published: true
 ---
 
 
-![Mummy and me :) :+1:](/images/withmom.jpg "My Mummy")
-
-<br><br>
 
 
 
