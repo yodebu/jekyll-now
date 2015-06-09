@@ -4,8 +4,9 @@ title: "Started writing again....."
 published: true
 ---
 
-is a beating heart the only requisite for considering a man alive? even a broken heart beats, but the man isn't alive any more.
-he is just another dead man walking
+Is a Beating Heart, the only requisite for considering a man alive? <br>
+Even a broken heart beats, but the man isn't alive any more. <br>
+He is just another DEAD MAN walking... <br> <br>
 
 
 
