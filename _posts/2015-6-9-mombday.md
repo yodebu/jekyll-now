@@ -4,12 +4,23 @@ title: "Started writing again....."
 published: true
 ---
 
+> **So it is 9th of June, My mumma's Birthday...Happy Birthday to mummy :-)**
+
+ I was sitting alone in the Office, her memories were coming along...so started writing... Summed up many things in a single post!
+<br> 
+
+<br><br><br><br>
+
+**STORY OF A BEATING HEART**
+
 Is a Beating Heart, the only requisite for considering a man alive? <br>
-Even a broken heart beats, but the man isn't alive any more. <br>
+Even a broken heart beats,
+but the man isn't alive any more. <br>
 He is just another DEAD MAN walking... <br> <br>
 
+<br><br><br><br>
 
-
+**HOW I CHASED YOU **
 
 Like a dog chasing a car
 I chase you from afar
@@ -18,8 +29,9 @@ And even if I do, so what?
 What can a dog possibly do with a car?
 Poor bastard can just look at it from afar.
 
+<br><br><br><br>
 
-
+**TRUE REASON OF MY HAPPINESS**
 
 My happiness used to depend on you and the things you did.
 An empty mind is the devil's workshop and Lord knows the devil did tempt me whenever I was alone, corrupting my thoughts with tales of your infidelity. I couldn't confront you anymore like the old days, so I believed that bastard. But a life without hope is worse than one filled with despair. And I read somewhere that one shouldn't depend on another for happiness.
@@ -29,14 +41,14 @@ Well,not quite. I don't depend on you for my happiness anymore. However the fact
 So you see my love, my happiness doesn't depend on you anymore, it simply rests on my ability to lie to myself.
 
 
-
+<br><br><br><br>
 
 You have it and then you lose it.
 After you have lost it all you can do is ponder over the time when you had it and if you are optimistic even hope you have it again. But you won't. Time brings you things and time takes them away.
 You are helpless. Just a mere cog that is irreplaceable.
 
 
-
+<br><br><br><br>
 
 In retrospect, I had an epiphany. Nothing surprising, really. I just realised what a damn fool I was.
 Ever since I remember, I was chasing after you. I might have wandered off here and there at times but I was always right behind you. Eventually, I even manage to catch up to you.
@@ -48,7 +60,7 @@ But,I will not follow you anymore.
 Now you can make your own way and I do hope you enjoy the freedom you craved so bad.
 The transgression was not my foolishness, for it was bound to happen when mortal falls for a celestial being. The foolish thing was to assume that the celestial being could ever love a mortal.
 
-
+<br><br><br><br>
 
 ##
 **follow for my works in open-source [my Github](www.github.com/yodebu)**
