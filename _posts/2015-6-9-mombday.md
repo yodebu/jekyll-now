@@ -13,6 +13,9 @@ published: true
 
 > **So it is 9th of June, My mumma's Birthday...Happy Birthday to mummy :-)**
 
+![Mummy and me :) :+1:](/images/withmom.jpg "My Mummy")
+
+<br><br>
  *I was sitting alone in the Office, past memories of my Special Girl were coming along...so started writing... Summed up many things in a single post!*
 <br> 
 
